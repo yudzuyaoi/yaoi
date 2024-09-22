@@ -1,4 +1,4 @@
-# yaoi
+
 ![](https://mocha.crd.co/assets/images/gallery09/452f4d93_original.png?v=5e9af0df) ![](https://mocha.crd.co/assets/images/gallery09/22a5b2f3_original.gif?v=5e9af0df) ![](https://64.media.tumblr.com/ccff046e83e0d19ad092ab0149de5607/f1413ef45abf2485-ca/s100x200/e7aea3a7db8a1d1897b7c441dbe756c438d372a6.gifv) ![](https://file.garden/ZSD6qQh9SRsD-dy3/stamps/ps7)![](https://file.garden/ZSD6qQh9SRsD-dy3/stamps/ps0) 
 
 ![](https://64.media.tumblr.com/26361622ba589e0ea5575b2e2a8a89a7/4a809193e4ba05c7-02/s100x200/f11e40be5c8f0e2878056e17685a9f813132781b.gifv) ![](https://64.media.tumblr.com/02f06846e7dc46fd5406a85bcb112bac/4a809193e4ba05c7-f8/s100x200/24ea0b09e926d06d3f1dfdacfb5281ff865813c4.gifv) ![](https://64.media.tumblr.com/b910b2dcc9700563b6cdc8bc9d1ca8dd/4a809193e4ba05c7-3c/s100x200/3ce4c6239278147a6bff9a0867522684b535e1ed.gifv) ![](https://64.media.tumblr.com/4d89a018134a3dd55308f6e1bae6b6d5/50121cb3713b19a1-66/s100x200/80e0ae00913b14921659d50a239ca76fa4fea476.pnj) ![](https://64.media.tumblr.com/199af5c0afcef2de776ca53c2a6c5559/3cf84ad38c46212e-af/s100x200/a821623a0ba52bf2c219ea540f88d40375033291.gifv)
